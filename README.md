@@ -5,9 +5,11 @@
 
 --> follow my main if u want! @soapchugger
 
-- rudie is my n1 kin!!
+- rudie is my BIGGEST kin!! plspls dni if you refer 2 urself as his number1 fan or if u identify as him,,
 
-- rudie and shrimpo my 2 personalities
+- rudie has had a special place in my heart ever since he was teased in 2024, I will forever b HIM!!
+
+- rudie and shrimpo my 2 personalities 
 
 - luv u aud
 
