@@ -1,8 +1,5 @@
 ![Screenshot_20251214_082242_TikTok](https://github.com/user-attachments/assets/375d20d1-bbbd-49b3-a90e-2ef6143e030a)
 
-
-## spam follow acc !!
-
 --> follow my main if u want! @soapchugger
 
 - rudie is my BIGGEST kin!! plspls dni if you refer 2 urself as his number1 fan or if u identify as him,,
