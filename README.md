@@ -12,6 +12,6 @@
  
 .༉‧₊˚ rudie and shrimpo r my 2 personalities 
 
-.༉‧₊˚ luv u aud n kath !!! 
+.༉‧₊˚ MERRY CHRISTMAS!!!
 
 ˖ㅤㅤ ㅤ۫ㅤ Ი𐑼 ˖ ㅤㅤ ٫٫ ˚.
