@@ -8,7 +8,7 @@
 
 .༉‧₊˚ plspls dni if you refer 2 urself as his number1 fan or if u identify as him,,
 
-.༉‧₊˚ rudie has had a special place in my heart ever since he was teased in 2024 !!
+.༉‧₊˚ rudie has had a VERY special place in my heart ever since he was teased in 2024 !!
  
 .༉‧₊˚ rudie and shrimpo r my 2 personalities 
 
